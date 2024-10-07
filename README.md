@@ -18,3 +18,5 @@ Clawd howlen wolf kinnie here. <3
 
 
 im currently trying to learn german! so, i may speak in german sometimes just for practice. 
+
+BTW ; My DNI list isnt very specific, for exampple the bronies/brony one! that only stands for DISGUSTING ones.

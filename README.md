@@ -15,3 +15,6 @@ i love my wife chat
 i prefer if you use tone tags, i cant understand people for shit.
 
 Clawd howlen wolf kinnie here. <3
+
+
+im currently trying to learn german! so, i may speak in german sometimes just for practice. 

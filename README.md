@@ -28,3 +28,7 @@ IF I INTERACT THEN MY DNI DOESNT MATTER !!
 big scary men <3 TATTOOS <33333 GMKFDS<L. 
 
 hi yes micheal myers?? ill be ur malewife. 
+
+
+
+IM OBSSESSED WITH TF2 AND SCOUT <3333

@@ -32,3 +32,5 @@ hi yes micheal myers?? ill be ur malewife.
 
 
 IM OBSSESSED WITH TF2 AND SCOUT <3333
+
+i have a really odd obsession with cannibals/cannibalism, please dni if that makes you uncomfy. my affection is similar to biting.

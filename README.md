@@ -36,3 +36,13 @@ IM OBSSESSED WITH TF2 AND SCOUT <3333
 i have a really odd obsession with cannibals/cannibalism, please dni if that makes you uncomfy. my affection is similar to biting.
 
 Twizted, ICP. Eminem. 
+
+
+
+
+
+
+
+
+06:27 AM[Bitter] eating his ass and turns into mike tyson out of nowhere
+06:27 AM[Bitter] would licorice turn buff if he ate hi

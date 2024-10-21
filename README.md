@@ -14,3 +14,20 @@ clawd wolf / AM kinnie.
 
 
 IHNMAIMS.
+
+
+
+
+Queer. > @Stipsl , i love this queer. 
+
+
+wanna talk? find me a fucking link that works.
+
+
+sometimes im really odd and hyper, and :3
+
+
+but thats just because im trying my best. please be kind, or i will be a complete asshole to you, theres no need to be a fucking cunt! 🫀
+
+
+I do roleplay as Fandom characters, but it depends.

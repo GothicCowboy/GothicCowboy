@@ -30,4 +30,4 @@ sometimes im really odd and hyper, and :3
 but thats just because im trying my best. please be kind, or i will be a complete asshole to you, theres no need to be a fucking cunt! 🫀
 
 
-I do roleplay as Fandom characters, but it depends.
+I do roleplay as Fandom characters, but it depends. PLEASE ROLEPLAY WITH ME IM GOING FUCKING INSANE. I LOVE ROLEPLAYING. i will be your dream man please

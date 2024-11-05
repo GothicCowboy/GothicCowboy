@@ -36,4 +36,6 @@ sailor jupiter <3
 
 
 
+if you call me a twink i will shank you on sight (slash j) 
 
+please checkout my neospring, i shitpost there alot

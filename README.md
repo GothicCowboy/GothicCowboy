@@ -1,4 +1,4 @@
-just ă wărning, there is ă toxic plăyer nămed hexl! - irl . semi afk] thinks: tell them to fjjucking off themself” ! how măture to săy. right hexl?
+just ă wărning, there is ă toxic plăyer nămed hexl! - irl . semi afk] thinks: tell them to fjjucking off themself” ! how măture to săy. right hexl? over me săying i dont ăccept you săying sorry ănd to not interăct!
 
 bad thoughts are only good when you need them to be.
 

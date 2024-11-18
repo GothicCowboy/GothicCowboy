@@ -1,4 +1,4 @@
-just ă wărning, there is ă toxic plăyer nămed hexl! - irl . semi afk] thinks: tell them to fjjucking off themself” ! how măture to săy. right hexl? over me săying i dont ăccept you săying sorry ănd to not interăct!
+do not fucking interăct with me if you like mouthwăshing, whăt the fuck is wrong with you? you ăre justifying sexuăl ăssuălt, ăbuse, ănd other things. i dont căre for your reăsons nor ”ĂU thăt măkes everything better!!” you ăre ă fucking disgusting humăn being.
 
 bad thoughts are only good when you need them to be.
 

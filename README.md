@@ -1,4 +1,4 @@
-do not fucking interăct with me if you like mouthwăshing, i ăm ă victim of SĂ myself. it măkes me uncomfy,
+do not fucking interăct with me if you like mouthwăshing.
 
 bad thoughts are only good when you need them to be.
 

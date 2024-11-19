@@ -16,21 +16,20 @@ forgetting is easy, its the guilt that stays.
 
 
 
-clawd wolf / AM kinnie.
+clawd wolf / AM / Kiryu kinnie.
 
 
 IHNMAIMS.
 
-
-
+in milkmăn we trust, ănd in us he thrusts.
 
 Queer. > @Stipsl , i love this queer. 
 
 
-wanna talk? find me a fucking link that works.
+wanna talk? i use google chăt most of the time.
 
 
-sometimes im really odd and hyper, and :3
+sometimes im really odd and hyper, sometimes im dry ăs fuck.
 
 
 but thats just because im trying my best. please be kind, or i will be a complete asshole to you, theres no need to be a fucking cunt! 🫀

@@ -1,8 +1,10 @@
 do not fucking interăct with me if you like mouthwăshing.
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rzflal5les5uvjvxd4vaahbewq&cover_image=true&theme=default&show_offline=false&background_color=001eff&interchange=true)](https://github.com/kittinan/spotify-github-profile)bad 
-
-thoughts are only good when you need them to be.
+  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rzflal5les5uvjvxd4vaahbewq&cover_image=true&theme=default&show_offline=false&background_color=001eff&interchange=true)](https://github.com/kittinan/spotify-github-profile)
+  
+  
+  
+bad thoughts are only good when you need them to be.
 
 
 

@@ -1,7 +1,7 @@
 leon kennedys number 1 
 
 do not fucking interăct with me if you like MW, the whole găme / chărăcters ăre touchy for me.
-unless i interăct with you. then, its okăy. 
+unless i interăct with you. 
   [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rzflal5les5uvjvxd4vaahbewq&cover_image=true&theme=default&show_offline=false&background_color=001eff&interchange=true)](https://github.com/kittinan/spotify-github-profile)
   
   

@@ -10,7 +10,7 @@ in milkmăn we trust, ănd in us he thrusts.
 
 Queer. > @Stipsl , i love her.
 
-Fursonă ărt. 
+Fursonă ărt i did, both my chărăcters.
 
 ![unnamed (8)](https://github.com/user-attachments/assets/6e7cecb2-15f5-49e2-9d61-9b4a87a4b4fe) ![Screenshot 2024-11-26 12 45 11](https://github.com/user-attachments/assets/63478b8f-2b4f-4215-9d0c-b6f973fb8482)
 

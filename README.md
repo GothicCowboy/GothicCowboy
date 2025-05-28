@@ -2,4 +2,4 @@ Foxboy. - CatBoys + CatGirls <3
 
 femboy on a LEASH!
 
-probably very problematic , dni if it upsetz you !
+Discord, (if i havent already put it somewhere here, i have bad memory.) > @G0thiccowboy - The first "o" in Goth is a zero.

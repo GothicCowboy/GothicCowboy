@@ -1,4 +1,4 @@
-Foxboy. - CatBoys + CatGirls <3
+Foxboy. - CatBoy .
 
 femboy on a LEASH!
 

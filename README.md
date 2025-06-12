@@ -5,7 +5,7 @@ no, i do NOT wish to date you, i am happily taken by @stipsl .
 
 
 
-Foxboy. - CatBoy . ![image](https://github.com/user-attachments/assets/73672b4a-68b8-4fe8-961f-80c907c7f2f4)![image](https://github.com/user-attachments/assets/cd625970-1ddd-4e6a-93ad-4898b2d50b65)
+Foxboy. - CatBoy . ! (https://github.com/user-attachments/assets/cd625970-1ddd-4e6a-93ad-4898b2d50b65)
 
 ![image](https://github.com/user-attachments/assets/e3dd610d-16c4-4099-8027-b2e65c16d242)
 

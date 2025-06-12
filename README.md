@@ -1,7 +1,9 @@
-  ![image](https://github.com/user-attachments/assets/1228ad29-598a-44ff-b411-11d9c080937a)
+ ![image](https://github.com/user-attachments/assets/1228ad29-598a-44ff-b411-11d9c080937a)
+
+
 As i am almost legally a adult, please don't interact with me if you are under 15. (people who are already friends with me do not count.) 
 no, i do NOT wish to date you, i am happily taken by @stipsl .
-![image](https://github.com/user-attachments/assets/86cb6af6-1aec-423f-aa75-8c769fa05e5c)![image](https://github.com/user-attachments/assets/86786f5a-5b9e-4498-b2ca-4f86c9135340)
+                                                                          ![image](https://github.com/user-attachments/assets/86cb6af6-1aec-423f-aa75-8c769fa05e5c)![image](https://github.com/user-attachments/assets/86786f5a-5b9e-4498-b2ca-4f86c9135340)
 
 
 

@@ -8,6 +8,6 @@ femboy on a LEASH!
 
 Discord, (if i havent already put it somewhere here, i have bad memory.) > @G0thiccowboy - The first "o" in Goth is a zero.
 
-![image](https://github.com/user-attachments/assets/6a51c412-fdd1-4ce4-b62c-9b47f297fd3c) ![image](https://github.com/user-attachments/assets/8f48b255-d28e-4cfd-9d75-843accb909bf) ![image](https://github.com/user-attachments/assets/037ca7cf-289b-4841-b5bb-3fc590b56086)
 
+https://external-media.spacehey.net/media/sCnWhWxRtuBQHPadAoT5Cypp99UXxpb52lPVp0pdL3UM=/https://y2k.neocities.org/stamps/tumblr_pgef2uZbKY1xzybrpo1_100.gif
 

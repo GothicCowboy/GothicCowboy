@@ -1,8 +1,12 @@
 
 
 As i am an adult, please don't interact with me if you are under 15. (people who are already friends with me do not count.) 
-no, i do NOT wish to date you, i am happily taken by @stipsl .
+no, i do NOT wish to date you, i am happily taken by @stipsl . 
+i DO roleplay!
 
+
+Faggot4Lyfe.
+Nmb1 BitchBoy!!
 
 
 Foxboy. - CatBoy - Puppyboy. ! 

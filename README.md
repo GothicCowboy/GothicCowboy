@@ -1,1 +1,1 @@
-Taken, > @Stipsl <3. Check strawpage for more about me. <p align="right"> <img src="https://komarev.com/ghpvc/?username=GothicCowboy&color=e17c0b&abbreviated=true"/> 
+Taken, > @Stipsl <3. Check strawpage for more about me, i change my github/main kin alot, so dont worry about that lol. <p align="right"> <img src="https://komarev.com/ghpvc/?username=GothicCowboy&color=e17c0b&abbreviated=true"/> 

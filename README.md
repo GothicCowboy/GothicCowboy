@@ -24,3 +24,6 @@ No, i do not want you to encourage or tell me i am a nice / good person. im tryi
 Please, dont ASK about any ships, i dont tell anyone besides close people, and no, i do not ship underage characters . 
 
 and i do encourage you to leave other ways to cope, it would help me alot. i am medicated, but that can only do so much. im so sorry if i make you uncomfy with my skins, thank you for reading.
+
+
+and please do not ask about what caused this, the trauma, thank you!

@@ -41,4 +41,4 @@ Again, i will be friends with you even if you are a proshipper, but the moment s
 
 You cannot change someones opinion on something, people are going to have different opinions. you should NOT attack someone over that opinion, and DNI goes both ways. if you are a pro/dark and you purposefully interact with antis and anyone you dislike just to rant/bitch about them saying something then dont talk to me. follow your OWN list. ive witnessed this so many times, you claim antis dont follow theyre own list, as you do the SAME thing. if you purposefully interact with someone because you are ON theyre DNI list, dont talk to me. thats actually so immature and stupid, people are allowed to have ANYTHING/ANYONE on theyre DNI list.
 
-I love my friends, but i cannot continue to put your health and feelings before my own,
+I love my friends, but i cannot continue to put your health and feelings before my own, i really do not mean any of this in a hateful way, please dont assume im being an ass. i have my reasons for all of this.

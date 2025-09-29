@@ -19,11 +19,12 @@ Taken, > @Stipsl <3. Check strawpage for more about me, i change my github/main 
 
 
 
-No, i do not want you to encourage or tell me i am a nice / good person. im trying my best to get help for being disgusting, i know its not a good way to cope, please do not try and tell me "the ships are okay!", i KNOW they are not okay. i feel disgusting and horrible. 
+I do not ship underage characters, or siblings. i do not like lolis or shotas. i do not support/like endo systems, but i will respect and not mention that in convo if you are one.
 
-Please, dont ASK about any ships, i dont tell anyone besides close people, and no, i do not ship underage characters . 
-
-and i do encourage you to leave other ways to cope, it would help me alot. i am medicated, but that can only do so much. im so sorry if i make you uncomfy with my skins, thank you for reading.
+do not encourage my ships, do not encourage darkshipping around me, im trying to heal. i AM mentally ill, i know this.
 
 
-and please do not ask about what caused this, the trauma, thank you!
+
+
+
+reffering to any drama, i do not want to talk about it. if a friend starts something, then im sorry, but im blocking you. i cannot do this anymore, i cannot DEAL with the amount of drama everyone keeps trying to start. i can forgive and forget, but at some point its a loss cause. Yes, i have forgiven old friends i had drama with, thats HEALTHY. if you have drama with someone i forgave, and we are friends, thats YOUR issue, not mine. you cannot choose who someone is friends with, you cannot choose whos side someone chooses. 

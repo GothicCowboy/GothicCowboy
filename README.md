@@ -9,8 +9,7 @@ Do not stalk my socials if you are someone i cut off. <p align="right"> <img src
 
 
 
-
-
+i am a juggalo, PLEASEEE interactt if you are one as well!!!!! :3 i LOVE to rant about stuff
 
 
 

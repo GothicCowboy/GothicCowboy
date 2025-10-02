@@ -1,8 +1,7 @@
 Do not stalk my socials if you are someone i cut off. <p align="right"> <img src="https://komarev.com/ghpvc/?username=GothicCowboy&color=e17c0b&abbreviated=true"/> 
 
 
-im trans x3! i act feminine, but im a man!
-
+im transgender !
 
 
 

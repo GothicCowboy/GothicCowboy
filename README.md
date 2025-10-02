@@ -16,7 +16,7 @@ i am a juggalo, PLEASEEE interactt if you are one as well!!!!! :3 i LOVE to rant
 
 
 
-I do not ship underage characters, or siblings. i do not like lolis or shotas. i do not support/like endo systems, i am NOT a proshipper. im a Darkshipper, but only towards myself and ADULT ocs.
+I do not ship underage characters, or incest. i do not like lolis or shotas. i do not support/like endo systems, i am NOT a proshipper. im a Darkshipper, but only towards myself and ADULT ocs.
 
 Please be aware i take meds and sometimes get intoxicated, i smoke weed sometimes, i may act strange. 
 

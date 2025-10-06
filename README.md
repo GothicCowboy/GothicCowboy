@@ -7,9 +7,3 @@ i am a juggalo, PLEASEEE interactt if you are one as well!!!!! :3 i LOVE to rant
 
 
 i am not a proshipper!
-i dont like lolis/shotas, :(. 
-
-
-i dislike any non trauma formed systems, 
-
-but i dont have a dni yet! so its okay to int!

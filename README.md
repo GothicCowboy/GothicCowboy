@@ -13,4 +13,8 @@ i am a juggalo, PLEASEEE interactt if you are one as well!!!!! :3 i LOVE to rant
 :DD and umm yeah, im really awkward im sorry dudes :,) 
 
 
-Im not a proshipper, i am a darkshipper, but i do not ship underaged characters, and i do not ship incest. i do not like shotas/lolis. i do not like endo/willow/any non trauma formed systems, but feel free to interact, i dont have a dni list just yet :3 im just warning you, i WILL speak my mind if it is brought up
+i am not a proshipper!
+i dont like lolis/shotas, :(. 
+i dislike any non trauma formed systems, 
+
+but i dont have a dni yet! so its okay to int!

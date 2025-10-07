@@ -3,6 +3,6 @@ Do not stalk my socials if you are someone i cut off. <p align="right"> <img src
 
 ***i am not a proshipper!***
 
-
+please read this strawpage, we could use your help. this is why i have not been online on most of my socials.
 
 https://our-situation.straw.page

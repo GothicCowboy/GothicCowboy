@@ -4,9 +4,5 @@
 ${\textsf{\color{#FAE3C6}I am not a proshipper!!}}$
 
 
+situation strawpage temp removed for now.
 
-
-
-***Please read this strawpage for why i have been offline, barely responding to things anymore, and almost always silent when i am online. im sorry if you believe i am ignoring you, but my family is more important then friends. we need help, and im going to be the one that gets us this help.***
-
-https://our-situation.straw.page
